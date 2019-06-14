@@ -25,7 +25,8 @@ carlos.pizzi@gmail.com
 
 ## Precio
 
-Sin Cargo
+Sin Cargo.
+**Si quieres donarme una cerveza, no hay problema!! mandame un mail y te explico como me la haces llegar !!**
 
 ## Nota
 
