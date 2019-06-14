@@ -21,4 +21,12 @@ donde %ClarionRoot% es la carpeta en la que instaló Clarion.
 
 carlos.pizzi@gmail.com
 
+**Colocar en el asunto AcruxH2GClass**
 
+## Precio
+
+Sin Cargo
+
+## Nota
+
+**Se agradece que toda mejora que se haga sea informada para el bien de toda la comunidad clarionera!!**
